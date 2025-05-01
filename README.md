@@ -1,1 +1,1 @@
-JESUS ARMANDO CHAN CHUCHIN 2B
+Nombre grado y grupo
